@@ -1,1 +1,1 @@
-# bearslot-game
+# Legal
